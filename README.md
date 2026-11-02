@@ -17,4 +17,4 @@ Research assistant at the DataHub lab · Founder and chair of the IEEE Computati
 - Bronze Award, CICSIC Middle East Regional Final
 - Chancellor's List, USFQ
 
-[LinkedIn](https://www.linkedin.com/in/franciscoteran-ds/) · ages.francisco.teran@gmail.com
+[LinkedIn](https://www.linkedin.com/in/franciscoteran-ds/) · ages.francisco.teran@gmail.com · +593 99 604 3268
